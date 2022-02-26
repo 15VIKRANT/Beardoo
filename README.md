@@ -1,0 +1,2 @@
+# Beardo
+ Ever wondered why all great men sport beards? We pondered upon this thought and found that men with a greater cause and intellect accept their individuality, are rational and are always open to out-of-the-box ideas (some even come up with them). They take pride in being real and different, just what it takes to be a Beardo. Anybody can grow a beard but not everybody can be a Beardo. So we are cloning this website.
